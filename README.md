@@ -2,11 +2,10 @@
 
 Hi! I am Bailey, just another programmer taking it one day at a time.
 
-I am always looking for freelance/contract work so feel free to reach out on LinkedIn with the link below
 
 ## My hobbies
 
-I really like to climb big rocks, spend too much money on magic the gathering, and dive deep into my tabletop rpg campaigns.
+I like to climb big rocks, spend too much money on magic the gathering, and dive deep into my tabletop rpg campaigns.
 
 ## My Stats
 
